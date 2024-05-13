@@ -1,0 +1,1 @@
+Website game  "Sky: Children of the Light", yang dikembangkan dan diterbitkan oleh thatgamecompany (TCG). game social advanture yang memungkinkan pemain menjelajahi dunia fantasi yang indah, bertemu dengan pemain lain, dan menyelesaikan petualangan bersama.
